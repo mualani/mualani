@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**mualani/mualani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i hang out on pt. i usually sit on the global safe server, or on russian server #1
+<br>
+i sit in the danganronpa/hoyoverse area or wherever my friends are sitting at
+<br>
+unlike a majority of the pt playerbase im pretty social so interacting is alright
+<br>
+<br>
+please dont talk to me if you are friends with oleg i dont like you bro enough
+<br>
+other than that dni ex-friends, bigots, proshippers, kids. i dont care otherwise
