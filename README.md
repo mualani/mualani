@@ -10,6 +10,4 @@ unlike a majority of the pt playerbase im pretty social so interacting is alrigh
 in public chat; busy is my default status. i also have lf chat enabled sometimes
 <br>
 <br>
-please dont talk to me if you are friends with oleg i dont like you bro enough
-<br>
-other than that dni ex-friends, bigots, proshippers, kids. i dont care otherwise
+i dont care who interacts with me anymore. just dont be weird ok? thank you
