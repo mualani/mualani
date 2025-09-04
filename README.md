@@ -1,13 +1,1 @@
-i hang out on pt. i usually sit on the global safe server, or on russian server #1
-<br>
-i sit in the danganronpa/hoyoverse area or wherever my friends are sitting at
-<br>
-unlike a majority of the pt playerbase im pretty social so interacting is alright
-<br>
-<br>
-**idle**: i'm off-tab, so please whisper me - **busy**: you're welcome to speak to me
-<br>
-in public chat; busy is my default status. i also have lf chat enabled sometimes
-<br>
-<br>
-i dont care who interacts with me anymore. just dont be weird ok? thank you
+<img align="left" width="170" height="240" src="https://file.garden/Z5AWYXj5okOfzgH9/Titelloses%2072_20250904151413.png"> <br> that one german who talks about history. im also scottish<br> i prefer he/she pronouns, but you can also use they/them <br> english/deutsch ok! im only fluent in english though<br> <br>no dni, just dont be weird to me and youll probably be ok<br> i dont hide people very often since i use my ignoring skills<br><br>im an ambivert, interactions welcome! say hi to me please<br>read my [rentry]() for more info on me and my brain function
