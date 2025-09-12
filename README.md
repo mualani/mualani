@@ -1,1 +1,3 @@
 <img align="left" width="170" height="240" src="https://file.garden/Z5AWYXj5okOfzgH9/Titelloses%2072_20250904151413.png"> <br> that one german whos kind of weird. im also part scottish<br> i prefer he/she pronouns, but you can also use they/them <br> english/deutsch ok! im only fluent in english though<br> <br>no dni, just dont be weird to me and youll probably be ok<br> i dont hide people very often since i use my ignoring skills<br><br>im an ambivert, interactions welcome! say hi to me please<br>read my [rentry]() for more info on me and my brain function
+
+02:45 PM[kuwait . fandom dni] And mind your business fat ß1tch. <br>ur not funny or cool for saying that btw ur just a rude ass person [@invalidmercy]()
