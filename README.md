@@ -1,3 +1,3 @@
-hai im 15 years old. im inactive on ponytown and i have my whispers disabled<br>
-i usually sit above docks, please talk in public chat to get my attention thanks<br>
-i speak english at a native level, and im learning german (im not fluent)
+hi im 15yo. please do not talk to me if youre under the age of 13<br>
+my whispers are disabled, talk in public chat to get my attention<br>
+i very rarely play ponytown, but when i do play i sit above docks
