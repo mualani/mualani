@@ -1,4 +1,3 @@
-pfp art by yimqiu on twitter<br><br>
-hi im 15yo. please do not talk to me if youre under the age of 13<br>
-my whispers are disabled. talk in public chat to get my attention<br>
-i very rarely play ponytown but when i do play i sit above docks
+15yo, i dont talk to people under 13 and i will hide you if youre a kid<br>
+im abrasive and straightforward, i dont do well with spineless people<br>
+my whispers are typically disabled, ask for me to turn them on
