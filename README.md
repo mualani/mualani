@@ -1,5 +1,13 @@
-read my [strawpage](https://copywrited.straw.page/), thanks. hides arent meant to be personal, ok?<br>
-i like making friends ^o^ sitting with me (c+h) is always encouraged<br>my social skills arent the best so i may be a bit awkward, sorry :"3
+<div align="center">
+  
+![](https://file.garden/aVv63DlleiJPIk3x/vinestaff2.png)
+<br>**saskia**𓈒 she/her⠀໒ྀི⠀[straw𓈒page]()⠀ ݁ ⠀[rentry]()<br>
+**c*h** is encouraged𓈒 i like to make friends!<br>
+i am 15yo𓈒 dni if -13, bigoted, pro-israel
 <br>
 <br>
-[helpourpeople.carrd.co](https://helpourpeople.carrd.co/)⠀⠀[boycott-israel.org](https://boycott-israel.org/)⠀⠀[arab.org](https://arab.org/)
+<img src="https://file.garden/aVv63DlleiJPIk3x/stamp2" width="100"> <img src="https://file.garden/aVv63DlleiJPIk3x/stamp1" width="100">
+<img src="https://file.garden/aVv63DlleiJPIk3x/stamp3" width="100">
+<br>
+<br>
+[helpourpeople𓈒](https://helpourpeople.carrd.co/)⠀⠀[boycott-israel𓈒](https://boycott-israel.org/)⠀⠀[arab𓈒org](https://arab.org/)
