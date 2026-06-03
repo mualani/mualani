@@ -1,7 +1,7 @@
 <div align="center">
   
 ![](https://file.garden/aVv63DlleiJPIk3x/vinestaff2.png)
-<br>**saskia**𓈒 she/her⠀໒ྀི⠀[straw𓈒page]()⠀ ݁ ⠀[rentry]()<br>
+<br>**saskia**𓈒 she/her⠀໒ྀི⠀[straw𓈒page](https://copywrited.straw.page/)⠀ ݁ ⠀[rentry]()<br>
 **c*h** is encouraged𓈒 i like to make friends!<br>
 i am 15yo𓈒 dni if -13, bigoted, pro-israel
 <br>
