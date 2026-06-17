@@ -1,7 +1,7 @@
 <div align="center">
   
 ![](https://file.garden/aVv63DlleiJPIk3x/vinestaff2.png)
-<br>**vani**𓈒 she only⠀໒ྀི⠀[straw𓈒page](https://copywrited.straw.page/)⠀ ݁ ⠀[free 🇵🇸](https://rentry.co/lebanon)<br>
+<br>**vani**𓈒 she only⠀໒ྀི⠀[straw𓈒page]()⠀ ݁ ⠀[free 🇵🇸](https://rentry.co/lebanon)<br>
 **c*h** is encouraged𓈒 i like to make friends!<br>
 im 15yo𓈒 dni if -13, bigoted, or pro-israel𓈒<br>
 germanys #1 fan𓈒 i have **20**+ 🇩🇪 skins
