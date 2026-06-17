@@ -3,7 +3,7 @@
 ![](https://file.garden/aVv63DlleiJPIk3x/Untitled124_20260617020028.png)
 <br>**vani**𓈒 she/her⠀໒ྀི⠀[pronouns𓈒cc]()⠀ ݁ ⠀[free 🇵🇸](https://rentry.co/lebanon)<br>
 **c*h** is encouraged𓈒 i like to make friends!<br>
-15 (12/10)𓈒 dni -13, bigoted, weird retards<br>
+15 (12/10)𓈒 dni -13, bigoted, weird people<br>
 pony𓈒towns germany𓈒 tysm [title-town](https://github.com/title-town) :-)
 <br>
 <br>
