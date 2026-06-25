@@ -1,6 +1,5 @@
 <div align="center">
   
-wip. i do not support qwelver!
 <br>**vani**𓈒 she/her⠀໒ྀི⠀[pronouns𓈒cc]()⠀ ݁ ⠀[free 🇵🇸](https://rentry.co/lebanon)<br>
 **c*h** is encouraged𓈒 i like to make friends!<br>
 15 (12/10)𓈒 dni -13, bigoted, weird people<br>
