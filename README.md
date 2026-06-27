@@ -1,13 +1,8 @@
 <div align="center">
   
-<br>**vani**𓈒 she/her⠀໒ྀི⠀[pronouns𓈒cc]()⠀ ݁ ⠀[free 🇵🇸](https://rentry.co/lebanon)<br>
-**c*h** is encouraged𓈒 i like to make friends!<br>
-15 (12/10)𓈒 dni -13, bigoted, weird people<br>
-pony𓈒towns germany𓈒 tysm [title-town](https://github.com/title-town) :-)
+<br>hai, my name is vani. she/her, im 15 years old
+<br>very paranoid prone. my typology is intp 6w5
+<br>c+h is always heavily encouraged ^_^ pls bmf
 <br>
 <br>
-<img src="https://file.garden/aVv63DlleiJPIk3x/stamp2" width="100"> <img src="https://file.garden/aVv63DlleiJPIk3x/stamp1" width="100">
-<img src="https://file.garden/aVv63DlleiJPIk3x/stamp3" width="100">
-<br>
-<br>
-[helpourpeople𓈒](https://helpourpeople.carrd.co/)⠀⠀[boycott-israel𓈒](https://boycott-israel.org/)⠀⠀[arab𓈒org](https://arab.org/)
+[helpourpeople](https://helpourpeople.carrd.co/)⠀⠀[boycott-israel](https://boycott-israel.org/)⠀⠀[arab.org](https://arab.org/)
