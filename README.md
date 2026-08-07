@@ -5,4 +5,4 @@
 **vani**. she/her only, 15 years old<br>
 intp 6w5 so/sp san-mel; typing<br>
 **c*h** often enc. dni nazi/fascists<br>
-[♡](https://github.com/title-town) [♡](https://github.com/pt-friendships)⠀⠀[helpourpeople]() [boycott]()
+[♡](https://github.com/title-town) [♡](https://github.com/pt-friendships)⠀⠀[helpourpeople](https://helpourpeople.carrd.co/) [boycott](https://boycott-israel.org/)
